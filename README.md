@@ -2,7 +2,7 @@
 
 In the crowd, she whispers tales,<br>
 A caring heart that never veils.<br>
-Walking together, side by side,<br>
+Walking, talking, side by side<br>
 In her stories, no secrets hide.<br>
 A dream to grow, just like the trees,<br>
 Her father's stature, a goal to seize.<br>
