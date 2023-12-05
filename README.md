@@ -28,4 +28,4 @@ A canvas of dreams where love swirls,<br>
 A picture of her, in life's sweet twirls.<br>
 
 
-Written with ❤️ by Dennis
+Written with ❤️ by Dennis © December 2023
